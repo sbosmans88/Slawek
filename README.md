@@ -1,1 +1,1 @@
-# I've been coding because i like challenges in my life.
+# I've been coding because I like challenges in my life.
